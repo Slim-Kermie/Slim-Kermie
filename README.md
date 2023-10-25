@@ -1,1 +1,1 @@
-Computer Engineering undergraduate studentat UT Arlington
+Computer Engineering undergraduate student at UT Arlington
